@@ -2,6 +2,6 @@
 FirstTimeMeFirstTimeYou
 
 I am looking over
-A four-leave clover
+A four-leaf clover
 That I have
 Overlooked before
